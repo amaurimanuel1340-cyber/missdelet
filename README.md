@@ -1,2 +1,6 @@
 # missdelet
-mi primer repositorio, estoy aprediendo 
+mi primer repositorio, estoy aprendiendo 
+
+#hello motherfuckers kjakakakak
+
+
